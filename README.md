@@ -93,6 +93,6 @@ If you like this project:
 * Share it with friends
 * Customize and create your own versions
 
-Happy coding & happy birthdays 🎈
+Happy coding & happy birthdays 🎈❤️
 
 
